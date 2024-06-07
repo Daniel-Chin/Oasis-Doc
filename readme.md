@@ -1,5 +1,6 @@
 ## Comprehensive video
 - For the main body of tips, see the accompanying video.  
+- 补充：卧室红抹布是擦地的.  
 
 ## Moving in
 - 冰箱里的东西任意处置，吃或者扔。菜都是几天前买的，但是冰棍应该很好吃。  
